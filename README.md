@@ -42,7 +42,7 @@ Especialização em Inteligência Artificial, com foco em automações aplicadas
 
 ## 📫 Contato
 
-📧 E-mail: [luiz.carneiro@aprs.edu.br](mailto:luiz.carneiro@aprs.edu.br)
+📧 E-mail: [lzf.steveo@gmail.com](mailto:lzf.steveo@gmail.com)
 
 💼 LinkedIn: [linkedin.com/in/luiz-fernando-carneiro-b2a808b8](https://www.linkedin.com/in/luiz-fernando-carneiro-b2a808b8/)
 
